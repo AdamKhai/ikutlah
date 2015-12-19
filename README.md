@@ -1,4 +1,2 @@
 # happy
-This repo is for training purposes.
-## Pengembala Bapet
-### I am watching Tamil movie.
+Hati tenang dengan Afifah.
