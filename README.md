@@ -1,3 +1,3 @@
 # ikutlah
-Forever Alone
-Haziq Gay
+Mana Mungkin
+Selimutnya Hilang~~~
