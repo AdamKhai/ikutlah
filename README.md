@@ -1,3 +1,2 @@
 # ikutlah
-Mana Mungkin
-Selimutnya Hilang~~~
+Zulfadhli Subni
