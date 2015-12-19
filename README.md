@@ -5,3 +5,5 @@ Forever Alone
 Haziq Gay
 ## Idham
 Kesian abang kau
+Haziq Gay zul ngange
+ok
