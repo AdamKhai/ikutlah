@@ -1,3 +1,2 @@
 # ikutlah
-Forever Alone
-Haziq Gay
+*idham
