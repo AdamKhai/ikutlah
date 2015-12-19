@@ -1,2 +1,2 @@
 # ikutlah
-*idham
+*idham bin zulkifli
