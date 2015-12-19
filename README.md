@@ -1,5 +1,5 @@
 # ikutlah
 Forever Alone
-Haziq Gay
+Haziq Insaf
 
 * Bam Bam
