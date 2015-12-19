@@ -1,3 +1,3 @@
 # happy
-Hati tenang dengan Afifah.
+Ini aku punya Idham, jangan kacau.
 
